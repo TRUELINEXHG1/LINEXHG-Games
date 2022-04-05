@@ -1,4 +1,4 @@
-# LINEXHG-Games
+# 2X FRAMES GAMES
 # **this is where you can find all my games**
 
 ## **INK SPACE**
