@@ -6,7 +6,7 @@
 
 ## **RPG LEZ**
 #### **https://truelinexhg1.github.io/RPG-LEZ.github.io/**
-https://ibb.co/37PZy47
+<a href="https://ibb.co/37PZy47"><img src="https://i.ibb.co/37PZy47/THUMBNAIL-FROST-EVENT.png" alt="THUMBNAIL-FROST-EVENT" border="0"></a>
 
 ## **ATTACK PLAY GROUND**
 #### **https://truelinexhg1.github.io/ATTACK-PLAYGROUND/**
