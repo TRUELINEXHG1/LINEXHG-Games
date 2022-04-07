@@ -5,8 +5,8 @@
 #### **https://truelinexhg1.github.io/TRUELINEXHG1.github.io.Inkspace/**
 <a href="https://ibb.co/3RCY453"><img src="https://i.ibb.co/3RCY453/INK-SPACE.png" alt="INK-SPACE" border="0"></a>
 
-## **RPG LEZ**
-#### **https://truelinexhg1.github.io/RPG-LEZ.github.io/**
+## **[FIXED] RPG LEZ**
+#### **https://truelinexhg1.github.io/RPG-LEZ/**
 <a href="https://ibb.co/37PZy47"><img src="https://i.ibb.co/37PZy47/THUMBNAIL-FROST-EVENT.png" alt="THUMBNAIL-FROST-EVENT" border="0"></a>
 
 ## **ATTACK PLAY GROUND**
