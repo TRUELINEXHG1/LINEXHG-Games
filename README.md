@@ -1,8 +1,8 @@
 # 2X FRAMES GAMES
 # **This is a website that you can play awesome scratch games at 60 fps**
 
-## **INK SPACE**
-#### **https://truelinexhg1.github.io/TRUELINEXHG1.github.io.Inkspace/**
+## **NEW UPDATE!!! :) INK SPACE**
+#### **LOADING LINK...**
 <a href="https://ibb.co/3RCY453"><img src="https://i.ibb.co/3RCY453/INK-SPACE.png" alt="INK-SPACE" border="0"></a>
 
 ## **[FIXED] RPG LEZ**
